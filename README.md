@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on CapBitex<br>👯CEO | CTO at PDPK.IR<br>🤝 Ai enthusiast<br>🌱 I’m currently working on AI , Fintech , Blockchain Projects
+🔭 I’m currently working on CapBitex - Keytex <br>👯CEO | CTO at PDPK.IR | ATIPA.IR <br>🤝 Ai enthusiast<br>🌱 I’m currently working on AI , Fintech , Blockchain Projects
 
 
 ## 🌐 Socials:
